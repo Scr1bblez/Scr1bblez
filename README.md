@@ -23,4 +23,6 @@ The OFFICIAL Uzi Doorman fictkin,,
 </details>
 
 
-[![My Blinkie](images/my-blinkie.gif)]([https://your-link-here.com](https://blinkies.cafe/?s=0021-vampirefangs))
+[![IMG-5023.gif](https://i.postimg.cc/Z5NYf9fr/IMG-5023.gif)](https://postimg.cc/jDsr2jY5)
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3f3612bc-e8db-410d-a25d-371d01dd2c20" />
+
