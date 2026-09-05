@@ -25,4 +25,10 @@ The OFFICIAL Uzi Doorman fictkin,,
 
 [![IMG-5023.gif](https://i.postimg.cc/Z5NYf9fr/IMG-5023.gif)](https://postimg.cc/jDsr2jY5)
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3f3612bc-e8db-410d-a25d-371d01dd2c20" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0680e280-8903-42bf-811f-69afd2b55184">
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/c4b31f43-a348-42f0-8a84-bf48e192db9a">
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/ff42c78e-ee5d-46cb-8ca9-8aa8a72e4bee">
+
 
