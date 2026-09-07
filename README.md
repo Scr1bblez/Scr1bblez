@@ -17,7 +17,7 @@ The OFFICIAL Uzi Doorman fictkin,,
 <details>
   <summary><b>▶️ Ponytown awards ! !</b></summary>
   
-  ### thank yew very much ! ! !
+  ### thanks yew soz much ^_^ ! ! !
   [![IMG-5020.jpg](https://i.postimg.cc/bvffC3MQ/IMG-5020.jpg)](https://postimg.cc/HrzNj4Tx)
   
 </details>
@@ -33,4 +33,18 @@ The OFFICIAL Uzi Doorman fictkin,,
 
 <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/ff42c78e-ee5d-46cb-8ca9-8aa8a72e4bee">
 
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/1721b21e-9830-469c-bb3a-a9ae5348c861" />
 
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/9a2fc917-6416-4c87-b252-65682ba99ae5" />
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/2983758f-0c4a-4526-a6a2-ea7ec114eda4" />
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/10fa821a-a3f5-4ccc-a7d9-229b678116f0" />
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/3a88aa40-79de-4834-994e-a30d457c8ae1" />
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/cf439128-95df-4f1b-9fde-66564cda1fd1" />
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/a77230a0-af92-490e-8540-4615433b79d1" />
+
+<img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/8d869161-f4fc-4460-8033-ecbd53fd221d" />
