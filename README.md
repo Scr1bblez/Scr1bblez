@@ -1,7 +1,7 @@
 ## Read me byi ! ! !
 
 “ I'm hurting you because I love you. “
-
+<br><br>
 [![Untitled513-20260831174005.png](https://i.postimg.cc/L4WD1Wd4/Untitled513-20260831174005.png)](https://postimg.cc/vDW5R3HC)
 
 
@@ -22,15 +22,18 @@ The OFFICIAL Uzi Doorman fictkin,,
   
 </details>
 
-
-
-
+<br><br>
+<img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
+<br><br>
 [![IMG-5023.gif](https://i.postimg.cc/Z5NYf9fr/IMG-5023.gif)](https://postimg.cc/jDsr2jY5)
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3f3612bc-e8db-410d-a25d-371d01dd2c20" />
+<br><br>
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0680e280-8903-42bf-811f-69afd2b55184">
+
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7882d231-8c7d-4679-bc6d-a2ab0e061a88" />
-
-
+<br><br>
+<img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
+<br><br>
 <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/c4b31f43-a348-42f0-8a84-bf48e192db9a">
 
 <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/ff42c78e-ee5d-46cb-8ca9-8aa8a72e4bee">
