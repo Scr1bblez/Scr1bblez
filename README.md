@@ -19,7 +19,8 @@ The OFFICIAL Uzi Doorman fictkin,,
   
   ### thanks yew soz much ^_^ ! ! !
   [![IMG-5020.jpg](https://i.postimg.cc/bvffC3MQ/IMG-5020.jpg)](https://postimg.cc/HrzNj4Tx)
-  
+  [![IMG-5147.jpg](https://i.postimg.cc/WzYL8zCp/IMG-5147.jpg)](https://postimg.cc/30GcJ83z)
+   
 </details>
 
 <br><br>
