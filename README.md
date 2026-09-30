@@ -7,11 +7,9 @@
 
  ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖
  
- @uzi !! ⌒ 3𝘵𝘦𝘦𝘯
+ @uzi / marceline !! ⌒ 3𝘵𝘦𝘦𝘯
 
-❝he  ノ him❞
-
-The OFFICIAL Uzi Doorman fictkin,,
+The OFFICIAL Uzi Doorman,, vaggi,, and marceline the vampire queen fictkin :oP
 
 
 <details>
@@ -54,3 +52,13 @@ The OFFICIAL Uzi Doorman fictkin,,
 <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/a77230a0-af92-490e-8540-4615433b79d1" />
 
 <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/8d869161-f4fc-4460-8033-ecbd53fd221d" />
+
+
+<br><br>
+<img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
+<br><br>
+꒰      Ⳋ᧙      ` iwc at all times unless pinned. `       ˖   
+　　⋮  ⌗         mentally unstable sometimes + reoccurring suicidal thoughts,, if I have dni then dniuid.  ㅤ‧  ˚  
+  ୭      physiological fictkin,, dbls dni. fictlink dbls iwc. ˚       .        ᵎᵎ     
+　　𓎟𓎟     masc terms only.     ⸝⸝ㅤ      ˎˊ˗
+⠀⠀
