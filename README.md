@@ -1,15 +1,15 @@
 ## Read me byi ! ! !
 
-“ I'm hurting you because I love you. “
+“ BITE ME ! ! . “
 <br><br>
 [![Untitled513-20260831174005.png](https://i.postimg.cc/L4WD1Wd4/Untitled513-20260831174005.png)](https://postimg.cc/vDW5R3HC)
 
 
  ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖
  
- @uzi / marceline !! ⌒ 3𝘵𝘦𝘦𝘯
+(//✚ .  ^) ໒꒱⠀υzι⠀꒱ྀིა⠀zι⠀ ྐ✚
 
-The OFFICIAL Uzi Doorman,, vaggi,, and marceline the vampire queen fictkin :oP
+13　⑅  ཉ⠀υzι ƒι¢ткιη,, ∂вℓѕ ∂ηι⠀♡ 𓉸ྀི ⠀нє/нιм.⠀𓏼 𓏴 𓊇ྀི
 
 
 <details>
