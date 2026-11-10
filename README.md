@@ -57,8 +57,3 @@
 <br><br>
 <img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
 <br><br>
-꒰      Ⳋ᧙      ` iwc at all times unless pinned. `       ˖   
-　　⋮  ⌗         mentally unstable sometimes + reoccurring suicidal thoughts,, if I have dni then dniuid.  ㅤ‧  ˚  
-  ୭      physiological fictkin,, dbls dni. fictlink dbls iwc. ˚       .        ᵎᵎ     
-　　𓎟𓎟     masc terms only.     ⸝⸝ㅤ      ˎˊ˗
-⠀⠀
