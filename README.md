@@ -2,9 +2,9 @@
 
 ❝ ⌗ ﹒ вιтє мє ! ໒꒱ ❞
 <br><br>
-<p align="center">
-  <img src="[https://postimg.cc](https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png)" width="600">
-</p>
+
+<img width="800" height="800" alt="image" src="https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png" />
+
 
 
 
