@@ -2,7 +2,9 @@
 
 ❝ ⌗ ﹒ вιтє мє ! ໒꒱ ❞
 <br><br>
-![Uzi sona]([https://postimg.cc](https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png))
+<p align="center">
+  <img src="[https://postimg.cc](https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png)" width="600">
+</p>
 
 
 
