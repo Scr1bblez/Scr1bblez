@@ -14,11 +14,12 @@
 
 <details>
   <summary><b>▶️ Ponytown awards ! !</b></summary>
-  ### thanks yew soz much ^_^ ! ! !
-  [![IMG-5020.jpg](https://i.postimg.cc/bvffC3MQ/IMG-5020.jpg)](https://postimg.cc/HrzNj4Tx)
-  [![IMG-5147.jpg](https://i.postimg.cc/WzYL8zCp/IMG-5147.jpg)](https://postimg.cc/30GcJ83z)
- 
- </div>
+  <br>
+  <h3>thanks yew soz much ^_^ ! ! !</h3>
+  <img src="https://i.postimg.cc/bvffC3MQ/IMG-5020.jpg" alt="Ponytown Award" width="400">
+ <img src="https://i.postimg.cc/NK7nFncZ" alt="Ponytown Award" width="400">
+ <img src="https://i.postimg.cc/zVNSvGGR" alt="Ponytown Award" width="400">
+</details>
  
 <br><br>
 <img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
