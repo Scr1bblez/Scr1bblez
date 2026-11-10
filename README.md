@@ -17,8 +17,8 @@
   <br>
   <h3>thanks yew soz much ^_^ ! ! !</h3>
   <img src="https://i.postimg.cc/bvffC3MQ/IMG-5020.jpg" alt="Ponytown Award" width="400">
- <img src="https://i.postimg.cc/NK7nFncZ" alt="Ponytown Award" width="400">
- <img src="https://i.postimg.cc/zVNSvGGR" alt="Ponytown Award" width="400">
+ <img src="https://i.postimg.cc/4xrRLCF4/IMG-5727.jpg" alt="Ponytown Award" width="400">
+ <img src="https://i.postimg.cc/WbF99DRS/IMG-5930.jpg" alt="Ponytown Award" width="400">
 </details>
  
 <br><br>
