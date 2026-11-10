@@ -121,11 +121,12 @@
 
 </div>
 <br><br>
+<img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
+<br><br>
 <details>
   <summary><b> eeewww old stamps / blinkies of old fictkin. </b></summary>
   <br>
   <h3>hmmm ewwewe ok yea ignore these UGHHH</h3>
-<img width="1280" height="27" alt="image" src="https://github.com/user-attachments/assets/3a25d05d-f809-4085-88a7-b9a8280cfd61" />
 <br><br>
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3f3612bc-e8db-410d-a25d-371d01dd2c20" />
 <br><br>
