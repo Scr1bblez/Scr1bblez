@@ -2,7 +2,8 @@
 
 ❝ ⌗ ﹒ вιтє мє ! ໒꒱ ❞
 <br><br>
-[[![Alt Text])](https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png)
+![Uzi sona]([https://postimg.cc](https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png))
+
 
 
 
