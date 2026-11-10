@@ -2,7 +2,8 @@
 
 ❝ ⌗ ﹒ вιтє мє ! ໒꒱ ❞
 <br><br>
-[![Untitled513-20260831174005.png](https://i.postimg.cc/L4WD1Wd4/Untitled513-20260831174005.png)](https://postimg.cc/vDW5R3HC)
+[[![Alt Text])](https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png)
+
 
 
  ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖
