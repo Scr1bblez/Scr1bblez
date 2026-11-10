@@ -3,7 +3,8 @@
 ❝ ⌗ ﹒ вιтє мє ! ໒꒱ ❞
 <br><br>
 
-<img width="800" height="800" alt="image" src="https://i.postimg.cc/ZYMmByFj/Untitled574-20261109193457.png" />
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/e6062e21-59ea-43f3-8b67-edc8a3b9bc33" />
+
 
 
 
